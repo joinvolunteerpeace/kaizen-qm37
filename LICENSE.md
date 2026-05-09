@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with kaizen premium Scripts, the #1 Script. Includes custom skins and auto-farm for unbeatable performance.
 
 
 
